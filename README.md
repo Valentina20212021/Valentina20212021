@@ -1,5 +1,7 @@
 Hola!!!!  Soy Valentina Cáceres
-It Recruiter, Selectora de Talentos IT  y Generalistas
-Me apasiona el mundo It y admiro a todos los que forman parte de él
+Consultora en Selección de Perfiles It y Generalistas.
+Headhunter
+Me apasiona el Ecosistema It y el Mundo del Capital Humano , me gusta interactuar con todos!!!!
 Considero que podemos ayudarnos entre todos!
 Será un gusto que interactuemos!
+Buena vida !!!!!!
