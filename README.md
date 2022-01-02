@@ -5,3 +5,4 @@ Me apasiona el Ecosistema It y el Mundo del Capital Humano , me gusta interactua
 Considero que podemos ayudarnos entre todos!
 Será un gusto que interactuemos!
 Buena vida !!!!!!
+Pueden contactarme en gvalentina.caceres@gmail.com
